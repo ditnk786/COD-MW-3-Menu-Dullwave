@@ -12,8 +12,6 @@ If you cant get our software -
 
 ***✅HWID Changer integration***
 
-![3](https://github.com/ditnk786/COD-MW-3-Menu-Dullwave/assets/85391174/c3e1a0cb-25d3-412e-8a7e-4a4df78d369e)
-
 ![2](https://github.com/ditnk786/COD-MW-3-Menu-Dullwave/assets/85391174/c5f85f50-e7f8-4aae-bb58-c448f4b204f2)
 
 #  Ｆｕｎｃｔｉ⚙️ｎｓ:
